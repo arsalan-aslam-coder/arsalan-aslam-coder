@@ -2,7 +2,7 @@ Certainly! Here's a fun and engaging overview for your GitHub profile:
 
 ---
 
-👋 Hey there! I'm Arsalan Ali, your friendly neighborhood coder! 🌟
+👋 Hey there! I'm Arsalan Aslam, your friendly neighborhood coder! 🌟
 
 About Me
 
